@@ -1,4 +1,4 @@
-# "U.S. Supreme Court Justices Being Liberal?"
+# "U.S. Supreme Court Judges Being Liberal?"
 
 ## Summary
 
